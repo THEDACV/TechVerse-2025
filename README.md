@@ -1,0 +1,1 @@
+Welcome to TechVerse 2025, the official intra-college website for NDRK First Grade College, Hassan. This platform is designed to centralize information, promote events, and foster community engagement among students, faculty, and staff.
